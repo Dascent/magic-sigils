@@ -9,5 +9,4 @@ Project in progress
 **The bridge between analitic mind, logic and supranatural, magic technology** 
 
 
-<a href="https://www.reddit.com/r/magicsigils/">Reddit</a> / <a href="https://zentasticarts.ro/courses/simboluri-magice/">ZentasticArts.Ro</a> / <a href="https://zentasticarts.ro/sigilii/descarca-sigilii-pentru-auto-imputernicire/">Sigilii DAscent</a></div>
-A project by DAscent - ZentasticArts &trade;
+<a href="https://www.reddit.com/r/magicsigils/">Reddit</a> /
